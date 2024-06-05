@@ -1,7 +1,8 @@
+
+
  ╰ 　  gutty/sawyer
  
- ![eb64070f](https://github.com/kkao014/kkao014/assets/106118544/315bbd76-3283-4979-8f36-de8a2a53d225)
-
+ ![4b8a6341](https://github.com/kkao014/kkao014/assets/106118544/64bcb775-4e62-48d4-8fc4-6ddc97b634dd)
 
  he ﾉ him 
 
@@ -9,7 +10,8 @@
 
  please do not copy my skins, taking inspo is ok.
 
- c + h always fine! ![4b8a6341](https://github.com/kkao014/kkao014/assets/106118544/64bcb775-4e62-48d4-8fc4-6ddc97b634dd)
+ c + h always fine! 
 
+![8ee4d078](https://github.com/kkao014/kkao014/assets/106118544/d5a4bdde-a077-44f1-a145-1e72824adc03)
 
 
